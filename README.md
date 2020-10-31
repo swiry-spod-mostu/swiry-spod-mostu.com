@@ -1,0 +1,1 @@
+# swiry-spod-mostu.com
